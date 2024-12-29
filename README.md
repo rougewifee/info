@@ -66,9 +66,10 @@ Keeping it simple, you can check out my [dni/byf(it old)](https://rentry.co/lesb
 
 •‎ ‎‎ shipping tails with ANYONE(THAT INCLUDES COSMO.)
 
-•‎ ‎‎ Knuxouge shippers/fans 
+•‎ ‎‎ **Knuxouge shippers/fans**
 
-•‎ ‎‎ Sonadow shippers/fans
+•‎ ‎‎ **Sonadow shippers/fans**
+
 
 •‎ ‎‎ Dandy world fans(the awful ones)
 
@@ -82,7 +83,7 @@ Keeping it simple, you can check out my [dni/byf(it old)](https://rentry.co/lesb
 
 •‎ ‎‎ omori fans
 
-•‎ ‎‎ scrouge the hedgehog fans(if friend thats okay)
+•‎ ‎‎ scrouge the hedgehog fans(NO HATE TO THEM I just find him stinky but it okay to int idc for him)
 In general if you get on my nerves ima hide you. 
 <p align="center">
 ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎<img src="https://i.postimg.cc/VsT1hg36/imageedit-4-5608650860.png"/>
